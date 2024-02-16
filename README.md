@@ -1,0 +1,2 @@
+# daiamor
+amoadai
